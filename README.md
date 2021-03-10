@@ -85,7 +85,7 @@ Ogilvy Agency*, Singapore – (May 2018 - November 2018)*
 
 ### Adobe Suite ⭐️⭐️
 
-### Coda ⭐️⭐️⭐️
+### Coda ⭐️
 
 ### Slack Automation ⭐️⭐️
 
